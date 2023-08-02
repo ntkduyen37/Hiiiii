@@ -1,2 +1,2 @@
 # Hiiiii
-Nguyen Thi Kieu Duyen @ntkduyen37 @student @buh @hub
+Nguyen Thi Kieu Duyen @ntkduyen37 @student @yi
